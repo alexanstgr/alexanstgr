@@ -1,3 +1,5 @@
+![](https://raw.githubusercontent.com/alexanstgr/alexanstgr/refs/heads/main/cover.png)
+
 ### Some fun facts
 
 - 🔪 Hobbyist Knife Maker & DIY Projects.
